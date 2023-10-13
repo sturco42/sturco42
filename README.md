@@ -4,6 +4,8 @@ Hello! I am a former 💲 sales professional with a passion for leveraging 💡 
 
 As I move out of the sales world I will continue to bring my skill in 🗣 communication, relationship-building, and problem solving to my new career as a software engineer. I am excited about the opportunities ahead as I grow my technical expertise and I look forward to 🤝 connecting with like-minded professionals who share my passion for innovation and growth!
 
+In my free time you can find me playing soccer, reading, or playing Super Smash Bros. Melee competitively!
+
 Feel free to reach out with any and all questions. I would love to connect with you!
 
 😄 Pronouns: he/him  
@@ -20,6 +22,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
-- 
 - ⚡ Fun fact: ...
 -->
